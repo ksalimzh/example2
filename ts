@@ -1,1 +1,1 @@
-funny day
+funny cat
